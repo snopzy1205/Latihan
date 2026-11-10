@@ -1,1 +1,2 @@
 # Latihan
+halo saya snopzy
